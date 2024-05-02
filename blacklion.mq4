@@ -1,0 +1,1 @@
+//Pending: Awaiting confirmation on whether it will be released for free or as a paid-only option.
